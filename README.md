@@ -1,4 +1,8 @@
-### Hi there 👋
+# Asa Cheney
+## Visual Communication Design Major at Eastern Washington University  
+## Skills Hockey
+## Super Power Im really tall 
+
 
 <!--
 **Asacheney/AsaCheney** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
